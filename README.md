@@ -1,1 +1,1 @@
-
+UChicago Student Resource Guide
